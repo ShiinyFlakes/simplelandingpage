@@ -1,1 +1,1 @@
-https://shiinyflakes.github.io/simplelandingpage/
+Link to website: https://shiinyflakes.github.io/simplelandingpage/
